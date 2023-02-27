@@ -1,0 +1,1 @@
+kolokwium z wizualnego
